@@ -4,7 +4,7 @@
 
 OOO 사이트 <br>
 
-![image](https://user-images.githubusercontent.com/82712691/146157791-b08b72bd-b791-4f96-8703-ece40b914eb0.png) <br>
+![image](https://user-images.githubusercontent.com/82712691/146157957-e603777f-b928-4361-af25-14eb4773fd39.png) <br>
 
 ----
 
